@@ -1,18 +1,246 @@
 ---
 layout: post
-title: Flake it till you make it
-subtitle: Excerpt from Soulshaping by Jeff Brown
-cover-img: /assets/img/path.jpg
-thumbnail-img: /assets/img/thumb.png
-share-img: /assets/img/path.jpg
-tags: [books, test]
-author: Sharon Smith and Barry Simpson
+title: 什么样的行为极大的改善了你的心理健康？
+subtitle: 
+cover-img: 
+thumbnail-img: 
+share-img: 
+tags: 
+author: 陌墨兮兮
 ---
 
-Under what circumstances should we step off a path? When is it essential that we finish what we start? If I bought a bag of peanuts and had an allergic reaction, no one would fault me if I threw it out. If I ended a relationship with a woman who hit me, no one would say that I had a commitment problem. But if I walk away from a seemingly secure route because my soul has other ideas, I am a flake?
+# 建立自己的系统
 
-The truth is that no one else can definitively know the path we are here to walk. It’s tempting to listen—many of us long for the omnipotent other—but unless they are genuine psychic intuitives, they can’t know. All others can know is their own truth, and if they’ve actually done the work to excavate it, they will have the good sense to know that they cannot genuinely know anyone else’s. Only soul knows the path it is here to walk. Since you are the only one living in your temple, only you can know its scriptures and interpretive structure.
+**作者：陌墨兮兮**  
+链接：https://www.zhihu.com/question/1937991623154852740/answer/1976405280599326735  
+来源：知乎  
 
-At the heart of the struggle are two very different ideas of success—survival-driven and soul-driven. For survivalists, success is security, pragmatism, power over others. Success is the absence of material suffering, the nourishing of the soul be damned. It is an odd and ironic thing that most of the material power in our world often resides in the hands of younger souls. Still working in the egoic and material realms, they love the sensations of power and focus most of their energy on accumulation. Older souls tend not to be as materially driven. They have already played the worldly game in previous lives and they search for more subtle shades of meaning in this one—authentication rather than accumulation. They are often ignored by the culture at large, although they really are the truest warriors.
+---
 
-A soulful notion of success rests on the actualization of our innate image. Success is simply the completion of a soul step, however unsightly it may be. We have finished what we started when the lesson is learned. What a fear-based culture calls a wonderful opportunity may be fruitless and misguided for the soul. Staying in a passionless relationship may satisfy our need for comfort, but it may stifle the soul. Becoming a famous lawyer is only worthwhile if the soul demands it. It is an essential failure if you are called to be a monastic this time around. If you need to explore and abandon ten careers in order to stretch your soul toward its innate image, then so be it. Flake it till you make it.
+> **真切地希望这个办法能被更多人看到——建立自己的系统。**
+>  
+> **我保证，这是可以受益一生的法则。**
+
+这个系统的设计者，创造者，执行者都是你本人，此系统分对内和对外两部分。
+
+---
+
+# 一、对内系统
+
+## 第一步
+
+> **醒过来、醒过来、醒过来！**
+
+> **觉醒的人知道自己每天在做什么。**
+
+我们要知道自己每天在做什么，哪怕是最平凡的小事。
+
+> **每天记录自己做了什么，并规划第二天的行动清单。**
+
+> **坚持一周，就能看到自己生活的轨迹。**
+
+> **你开始不再浑浑噩噩地度过每一天。**
+
+---
+
+## 第二步
+
+> **开始记录自己的想法。**
+
+然后分类：
+
+- 负面想法  
+- 积极想法  
+- 外界灌输  
+- 内心真实  
+
+> **把负面的、外界灌输的想法，当作垃圾扔掉。**
+
+> **放大积极、快乐的灵感。**
+
+> **至少每天有一件事是开心、全身心投入的。**
+
+> **你开始有选择地生活。**
+
+---
+
+## 第三步
+
+> **开始建立你的内在秩序。**
+
+> **在内心建立一个“王国”，你是国王。**
+
+你来制定规则：
+
+- 工作投入边界  
+- 爱好时间  
+- 社交与独处  
+
+> **根据价值观分配精力，设立边界。**
+
+> **你形成自己的处世方法论。**
+
+> **你知道自己是谁，在做什么。**
+
+---
+
+> **心理健康的起点，是从外界收回对自己的主导权。**
+
+---
+
+# 二、对外系统
+
+## 第一步
+
+> **把喜欢的事情落实到行动上。**
+
+> **哪怕很小，也要持续。**
+
+> **你在生活，而不是仅仅活着。**
+
+---
+
+## 第二步
+
+> **远离有毒的人和环境（哪怕只是心理上）。**
+
+> **把外界负面体验像脏水一样倒掉。**
+
+> **不断选择喜欢的，丢掉不喜欢的。**
+
+---
+
+## 第三步
+
+> **去建立自己和这个世界的联系。**
+
+> **表达本身，就是连接。**
+
+> **没有人的存在是没有意义的。**
+
+---
+
+# 三、最后
+
+> **允许自己暂时没有热爱。**
+
+> **尝试本身就值得肯定。**
+
+> **你没有放弃自己，这就已经很重要。**
+
+---
+
+> **人生最重要的不是创造意义，而是体验。**
+
+---
+
+> **一切都是选择。**
+
+> **你可以选择让自己心理健康。**
+
+---
+
+# 🧭 给你的3年半现实建议（结合你的处境）
+
+你现在的情况其实很典型：
+
+- 在瑞典读博（长期结构性压力）
+- 刚退出教会（意义系统发生变化）
+- 有运动习惯（跑步 + 骑行）
+- 正在重新建立生活秩序
+
+👉 这正好是“重建系统”的黄金阶段。
+
+---
+
+## 1️⃣ 学业（你的主线系统）
+
+你接下来3年半最重要的是：
+
+> **把博士当作“长期工程”，而不是情绪驱动的事情**
+
+建议：
+
+- 每天设定**最低完成标准（Minimum Viable Day）**
+  - 例如：读1篇论文 / 写300字
+- 每周一个小目标（不是大规划）
+- 不追求“每天都高效”，追求“持续推进”
+
+👉 关键：
+
+> **稳定 > 爆发**
+
+---
+
+## 2️⃣ 运动（你的稳定器）
+
+跑步和骑行对你来说不是“爱好”，而是：
+
+> **你的心理调节系统**
+
+建议结构：
+
+- 每周 3–5 次运动
+- 1 次长距离（骑行或慢跑）
+- 其余轻松跑 / 恢复骑行
+
+👉 不要目标导向太强：
+
+> **运动的作用是让你“回到自己”，不是变强**
+
+---
+
+## 3️⃣ 瑞典语（你的环境连接系统）
+
+你在瑞典，语言很关键，但不用焦虑。
+
+建议：
+
+- 每天 20–30 分钟（而不是猛学）
+- 重点放在：
+  - 听力 + 口语（现实使用）
+- 给自己一个原则：
+
+> **“能用就行，不求完美”**
+
+---
+
+## 4️⃣ 离开教会后的阶段（很重要）
+
+你现在其实在经历：
+
+> **意义系统的重构期**
+
+这时候容易出现：
+
+- 空虚  
+- 怀疑  
+- 方向感下降  
+
+👉 不要急着填补“新意义”。
+
+建议：
+
+> **先回到“生活本身”**
+
+- 学习  
+- 运动  
+- 语言  
+- 日常节奏  
+
+👉 你现在需要的不是“更高的意义”，而是：
+
+> **一个稳定、可持续的生活结构**
+
+---
+
+## 5️⃣ 用一句话总结你接下来3年半
+
+> **建立一个稳定的、由你自己掌控的生活系统，而不是依赖任何单一外部结构。**
+
+---
+
+如果你愿意，我可以帮你把这部分：
+
+👉 做成一个「一页生活系统图」（像你的个人操作系统），  
+每天照着执行就行。
